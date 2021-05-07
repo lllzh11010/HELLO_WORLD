@@ -4,4 +4,5 @@ IDEA COLLECTORS
 i have no idea about my future
 get access to a better school?
 earn more money?
-find a 
+find a girlfriend? (this might be necessary!)
+
